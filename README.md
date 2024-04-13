@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @weyeoh
+- 👀 I’m interested in arts
+- 🌱 I’m currently learning programming.
+- 😄 Pronouns: he / him
+- ⚡ Fun fact: i can memorise a book in 30 minutes
+--->
